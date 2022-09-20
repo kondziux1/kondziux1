@@ -1,3 +1,1 @@
-Nic nie potrafię
-
-ps znacie masno gang
+Mikro projekty i pomoc dydaktyczna dla bałwanów
